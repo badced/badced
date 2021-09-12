@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @badced
+- 👀 I’m interested in proposing my artworks as NFT.
+- 🌱 I’m currently learning how to do it
+- 📫 reach me on instagram : bad.ced.international
